@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Bowser
+2. King K Rool
+3. Mario
